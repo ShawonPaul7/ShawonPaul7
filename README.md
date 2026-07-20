@@ -12,7 +12,7 @@
 
 - High School Student at HHS  
  Tennis Player  
-Love Flying Airplnes  
+Love Flying Airplanes  
    -
 
 🔭 &nbsp;I'm currently working on **App &amp; Website  - TagIn**  
